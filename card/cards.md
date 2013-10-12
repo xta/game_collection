@@ -1,0 +1,2 @@
+* Monopoly Deal
+* Pokémon TCG
